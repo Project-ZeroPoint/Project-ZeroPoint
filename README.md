@@ -1,4 +1,4 @@
-**If we are messaged to take down ZeroPoint we will not say no or fight with anyone we will gladly take it down and make our own backend.**
+**If we are messaged to take down ZeroPoint we will not say no or fight with anyone we will gladly take it down.**
 
 ## About
 
